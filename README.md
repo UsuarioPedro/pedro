@@ -1,2 +1,2 @@
 # pedro
-me llamo pedro que mas te voy a decir
+me llamo pedro q mas te voy a decir
